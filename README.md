@@ -1,6 +1,6 @@
 # 👤 Ana Sofia Agudelo
 
-📧 **Correo:** anasof0912@gmail.com | 🌐 **GitHub:** [anasof0912-a](https://github.com/anasof0912-a) | 💼 **LinkedIn:** [Pendiente de confirmar] | 📍 **Ubicación:** [Ciudad], Colombia
+📧 **Correo:** anasof0912@gmail.com | 🌐 **GitHub:** [anasof0912-a](https://github.com/anasof0912-a) | 📍 **Ubicación:** [Medellin], Colombia
 
 ---
 
