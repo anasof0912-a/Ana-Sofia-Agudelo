@@ -1,6 +1,6 @@
 Ana Sofia Agudelo
 
-anasof0912@gmail.com | [GitHub](https://github.com/anasof0912-a) | [Pendiente de confirmar] | [Ciudad], Colombia
+anasof0912@gmail.com | [GitHub](https://github.com/anasof0912-a) | medellin, Colombia
 
 ---
 
