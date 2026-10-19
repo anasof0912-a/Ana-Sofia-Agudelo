@@ -10,11 +10,6 @@ Soy estudiante de **Tecnología en Análisis y Desarrollo de Software (SENA)**. 
 
 ---
 
-## 💼 Experiencia Laboral
-
-> 📌 *Sin experiencia laboral formal confirmada. Enfocada actualmente en la formación académica y desarrollo de proyectos prácticos.*
-
----
 
 ## 🎓 Educación
 
